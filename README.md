@@ -2,4 +2,4 @@
 
 Happy New Year Project
 
-By Joe Hawk & Al Jabar
+By Al Jabar & Joe Hawk
